@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Vin11Github more commonly refered to as Vin
+- 👀 I’m interested in learning and coding using Python and Java/Javascript
+- 🌱 I’m currently learning Python
+- 📫 You can reach me at 'treacklet@gmail.com' or 'Vinality#2237' if you want to ask anything. Keep in mind I will always respond so much faster if you reach me at my discord.
